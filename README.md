@@ -1,1 +1,1 @@
-https://exp-hub.000webhostapp.com/
+http://avinashnayak.tech/
